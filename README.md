@@ -2,7 +2,7 @@
 
 **AI/ML Engineer | Computer Vision | Deepfake Detection | Full-Stack Developer**
 
-📍 **Delhi, India** | 🚀 **Available for immediate relocation to UAE/Dubai**  
+📍 **Kerala, India** | 🚀 **Available for immediate relocation to UAE/Dubai**  
 📧 **Open to opportunities** | 🔗 **[Portfolio](https://nahidpn.dev)**
 
 ---
